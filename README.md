@@ -1,2 +1,2 @@
 # windowsfixlag
-nah i win
+ddos in windowsfixlag and bye
